@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ebrar Gökçe Bahşi
-- 👀 I’m interested in learn new languages,interested in researching topics related to technology,computer ,software and reading books.
+- 👀 I’m interested in learn new languages,interested in researching topics related to technology,computer ,software .
 - 🌱 I’m currently learning excel program and english
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ebrar_gokce_bahsi@hotmail.com/ebrargokce1905@gmail.com
